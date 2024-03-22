@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @joel-o12
 - 👀 I’m interested in Crypto
-- 🌱 I’m currently learning how bitcoin works
+- 🌱 I’m currently learning how Ethereum works
 - 💞️ I’m looking to collaborate on cyrpto projects
 - 📫 How to reach me BtJoel3789ATGMAIL  don't spam
 - ⚡ Fun fact: ...
