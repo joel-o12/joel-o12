@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning how Ethereum works
 - 💞️ I’m looking to collaborate on cyrpto projects
 - 📫 How to reach me BtJoel3789ATGMAIL  don't spam
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ETH is real BTC
